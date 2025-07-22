@@ -32,8 +32,8 @@ This repository includes:
 
 For questions, collaboration, or feedback:
 
-**Raj Awasthi**  
-📧 rajawasthi2203@gmail.com
+**Jai Awasthi**  
+📧 jaiawasthi891@gmail.com
 
 ---
 
