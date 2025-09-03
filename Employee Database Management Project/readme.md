@@ -81,6 +81,6 @@ The dashboard helps answer critical business questions such as:
 
 ## 📬 Contact
 
-**Raj Awasthi**  
-📧 rajawasthi2203@gmail.com
+**Jai Awasthi**  
+📧 jayawasthi891@gmail.com
 
