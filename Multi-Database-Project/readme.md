@@ -73,5 +73,5 @@ This dashboard can be used by:
 
 ## 📬 Contact
 
-**Raj Awasthi**  
-📧 rajawasthi2203@gmail.com
+**Jai Awasthi**  
+📧 jayawasthi891@gmail.com
